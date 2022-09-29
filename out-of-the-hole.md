@@ -9,7 +9,7 @@ Our story begins with... Looking at canvas for day 3
 
 
 ## Chapter 3: Hardship
-Adversity builds character
+Adversity builds Character
 
 ## Chapter 4: Recovery
 
